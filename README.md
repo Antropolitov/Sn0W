@@ -23,3 +23,6 @@ More sites → just add them to self.sites
 
 subscribe to my project on Telegram @gitclonegit please)
 
+
+I have nothing against it soxoj(OWNER "Maigret") and anyway, he's my friend)
+
